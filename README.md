@@ -1,1 +1,1 @@
-# lidaddy.github.io
+# lidaddy
